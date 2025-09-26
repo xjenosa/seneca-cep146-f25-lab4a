@@ -5,8 +5,8 @@
 **MAXIMILIAN ALI**
 
 *Cycling*
-- Watching anime
-- Buying clothes
+- Watch anime
+- Buy clothes
 - Play badminton
 
 # Exercise 2: Recipe Card
